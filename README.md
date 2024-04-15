@@ -1,27 +1,25 @@
+<p align="center">
+<img src="https://64.media.tumblr.com/1d9c7e2eedf8d30d1bd9491a91e6c945/2d1c365d505f011c-73/s540x810/a2155e3016471577d10cf50672775720d3ee60f8.pnj"/>
+</p>
 
 <p align="center">
-<img src="https://64.media.tumblr.com/a9fcc4271794c029b5d608c80e5f35ee/b13fddc749fca44e-dc/s400x600/27adc0b39aaaa3df85a2dca1803a45a5abad7b96.pnj" style="max-width: 100%;">
+$\text{\color{#ae82d3}{dance \ forever \ inㅤ\ due \ time}}$
+
+</p> 
+<p align="center">
+<img src="https://64.media.tumblr.com/6e808920e58f81b0cdcb1601dd030944/2d1c365d505f011c-8a/s640x960/57862bab5f2fcc4ec7b1018f3ca451d4513ebd23.gifv"/>
 </p>
+
+<div align="center">
+
+$\text{\color{#9c51c8}{leo   \ ─ \  it + he }}$
+###  [.co/-divinekey](https://rentry.co/-divinekey)   ㅤ[my wife](https://github.com/azulashengrotto)ㅤ<p/>
+
 
 <p align="center">
-<img src="https://media.discordapp.net/attachments/457027476632240138/1221514616765550683/download.png?ex=6612db23&is=66006623&hm=f00d59df1255f0d2caf5d75d3afd632c27de0c55f60371bfd917c64cd5c6b80c&=&format=webp&quality=lossless" style="max-width: 100%;">
+<img src="https://64.media.tumblr.com/8f8bf90894e80d99c00cb8d79fd72d72/2d1c365d505f011c-b4/s250x400/b9ad8c6914b45ebab2748a84693cb56ab9d9e527.gifv"/>
 </p>
 
-<p align="center" dir="auto">
-<mtext mathcolor="lightblue"> floyd or leona⠀⠀─⠀⠀or just call me by my pony wtv tickles ur fancy. </mtext>
-</p>
-<p align="center" dir="auto">
-<mtext mathcolor="lightblue"> i have audhd & have extreme social anxiety but i love interacting, please talk to me i'm boreddd.. </mtext>
-</p>
-<p align="center" dir="auto">
-<mtext mathcolor="lightblue">I HAVE NO DNI. JUST DON'T BE WEIRD (-ISM, PROSHITTER, ALL THAT EWW), I'LL HIDE YOU IF I DON'T LIKE YOU. </mtext>
-</p>
-
-⠀
-⠀
-⠀
-<p align="center">
-<img src="https://64.media.tumblr.com/f786bfbe3468d6ce2d3c5f59827b4fb2/b13fddc749fca44e-18/s400x600/199ecdb2f00c1ab2e89c689f2c8e216b98a5452f.pnj" style="max-width: 100%;">
-</p>
+<div align="left">
 
 
