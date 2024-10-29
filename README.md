@@ -13,7 +13,7 @@ $\text{\color{#ae82d3}{dance \ forever \ inㅤ\ due \ time}}$
 <div align="center">
 
 $\text{\color{#9c51c8}{leo   \ ─ \  it + he }}$
-###  [.co/-divinekey](https://rentry.co/-divinekey)   ㅤ[my wife](https://github.com/azulashengrotto)ㅤ<p/>
+### ㅤ[my wife](https://github.com/azulashengrotto)ㅤ<p/>
 
 
 <p align="center">
